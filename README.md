@@ -1,1 +1,1 @@
-# ChickenTacos
+The Chicken Tacos are cooked so quickly on the stovetop with pico, avocado, and lime. They are have tacos which is the bread which contains all the chicken, vegetables, and spices. Its served in warmed tortillas with desired toppings. You can add diced avocado, cilantro and freshly squeezed lime juice which makes the tacos taste extra delicious. Its one of the easiest meals to make and is popular worldwide!
